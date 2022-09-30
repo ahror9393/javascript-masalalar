@@ -1,0 +1,1 @@
+### Bu yerda har kunlik js mashqlarim javoblarini yuborib turaman
